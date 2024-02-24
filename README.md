@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **shayanleghari16@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/saddar-u-din-babar-b48789259/](https://www.linkedin.com/in/saddar-u-din-babar-b48789259/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/shayan-leghari-572438257/](https://www.linkedin.com/in/shayan-leghari-572438257/)
 
 - ⚡ Fun fact **Dramas and Songs**
 
